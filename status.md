@@ -2,7 +2,7 @@
 
 #### Your name
 
-Jalen Reid
+Jalen Reid, Jacqueline Assiri
 
 #### Your section leader's name
 
